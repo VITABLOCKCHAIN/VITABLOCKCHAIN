@@ -10,3 +10,15 @@
 <FORMAL_VERIFICATION_DAO> из солёных океанов выпрыгнул коацерват
 <baz> хм
 ```
+
+Прикрепленная публикация
+
+Евгений Григорьевич Филиппов
+
+26 августа 2021 г.  · 
+
+Это видят: Доступно всем
+
+The Universe is not your soap bubble. The Universe has a chaos and stuff beyond limits and the life will reappear 🧗 when the Universe metamorphs into something other countless numbers of times and into countless numbers of forms.
+
+Is the above fertile or not, or tertium datur, etc et al?
