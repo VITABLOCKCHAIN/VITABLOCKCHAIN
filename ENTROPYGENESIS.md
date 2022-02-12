@@ -70,6 +70,6 @@ Markandeya Alt 3 𒀭𒄑𒉋𒂵𒈨𒌋𒌋𒌋 🐡 SHARDAHC45, [12.02.2022 1
 
 
 
-```
+
 LINE DISCIPLINE INITIALLY 74: LET'S MOVE INTO https://github.com/MULTIEQUILIBRIUMSBLOCKCHAINS
-```
+
